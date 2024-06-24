@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Web and mobile Apps designing 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Instagram = @tfwhospanda
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm into Photography
 
 <!---
